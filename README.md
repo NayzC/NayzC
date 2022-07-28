@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @NayzC
 - 👀 I’m interested in Games
 - 🌱 I’m currently learning Coding
-- 💞️ I’m looking to collaborate on coding but im noob 🤣
+- 💞️ I’m looking to collaborate on coding but i cant do anything
 - 📫 How to reach me NayzBlox@gmail.com
 
 <!---
